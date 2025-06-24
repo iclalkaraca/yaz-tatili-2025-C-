@@ -1,2 +1,0 @@
-Dosya silindi
-
